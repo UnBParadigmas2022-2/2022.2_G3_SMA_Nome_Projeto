@@ -1,0 +1,1 @@
+# 2022.2_G3_SMA_Nome_Projeto
